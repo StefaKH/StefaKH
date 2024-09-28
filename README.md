@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @StefaKH
+- 👀 I’m interested in ... Programming (java/c/python), videogames and music
+- 🌱 I’m currently learning ... Java
+- 📫 How to reach me ... Discord (pallepisello), i'll answer immediatly
+- 😄 Pronouns: ... He/Him  
+- ⚡ Fun fact: ... KH means Kingdom Hearts, its actually my favourite game!
